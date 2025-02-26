@@ -1,1 +1,1 @@
-om= ganpate namhe
+om ganpate namhe
